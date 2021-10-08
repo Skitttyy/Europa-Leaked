@@ -8,3 +8,8 @@ feel free to use
 ![image](https://user-images.githubusercontent.com/73967130/136633863-6d64349b-313e-4d9b-ace7-ad3258e162ce.png) LOL! THEY ADDED A LOGGER TO ONE AND RELEASED IT LOL! THEY ARE STUPID ASF LOL!
 
 ![image](https://user-images.githubusercontent.com/73967130/136633845-ff09afbf-00cb-487c-970a-24ce3520a73d.png) LOL! IM THE KING AND THEY ARE GOING TO RELEASE FAKE DEOBFUSCATED VERSION BUT MINE WILL BE REAL LOL!
+
+
+![image](https://user-images.githubusercontent.com/73967130/136633982-9fa7794b-7db3-44ab-9e0c-9ed19d340bb9.png)
+
+LOL THEY ARE RAGING BUT IM THE ONE WHO TOLD ZOPAC TO INSIDE THEM LOL!!!!
